@@ -6,3 +6,4 @@
 | 2026-11-18 | Il gagne 250 000 F et il lui reste 0 : le grand frère qui paie tout | Ablaye, Khady (père, Modou, Awa) | videos/2026-11-18-grand-frere-qui-paie-tout.mp4 |
 | 2026-11-20 | 75 000 F par mois : il met 10 000 F de côté, comment il fait ? | Malick, Coumba | videos/2026-11-20-salaire-75000-epargner-dabord.mp4 |
 | 2026-11-22 | PLAN D'ACTION : lancer un business de jus (bissap, bouye) avec 50 000 F | Rokhaya, Pape | videos/2026-11-22-business-jus-bissap-50000f.mp4 |
+| 2026-11-23 | MAGIE DES RÉSEAUX : 40 pots de thiouraye invendus, tout vendu en 5 jours grâce à une vidéo TikTok | Mariama, Ousseynou, Astou | videos/2026-11-23-thiouraye-video-tiktok-40-pots.mp4 |
