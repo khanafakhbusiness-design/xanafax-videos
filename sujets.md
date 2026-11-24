@@ -7,3 +7,4 @@
 | 2026-11-20 | 75 000 F par mois : il met 10 000 F de côté, comment il fait ? | Malick, Coumba | videos/2026-11-20-salaire-75000-epargner-dabord.mp4 |
 | 2026-11-22 | PLAN D'ACTION : lancer un business de jus (bissap, bouye) avec 50 000 F | Rokhaya, Pape | videos/2026-11-22-business-jus-bissap-50000f.mp4 |
 | 2026-11-23 | MAGIE DES RÉSEAUX : 40 pots de thiouraye invendus, tout vendu en 5 jours grâce à une vidéo TikTok | Mariama, Ousseynou, Astou | videos/2026-11-23-thiouraye-video-tiktok-40-pots.mp4 |
+| 2026-11-24 | ARGENT : 150 000 F de salaire, compte vide le 20 : les petites dépenses de 1 000 F par jour | Ndèye, Cheikh | videos/2026-11-24-petites-depenses-salaire-150000f.mp4 |
